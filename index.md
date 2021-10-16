@@ -1,4 +1,5 @@
-![alt text](https://rhosen.github.io/assets/img/profile.webp)
+![alt text](src="https://c.tenor.com/ftqs42Yna-oAAAAi/mochi-mochi-hello-white-mochi-mochi.gif")
+
 I'm an old soul.<br />
 I love kindness, compassion, intimacy.<br />
 I love poetry, story, music.<br />
